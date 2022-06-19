@@ -1,1 +1,1 @@
-# MyRecipes
+This is a recipe which can be used to make a fluffy, spongy and patterned Marble or Zebra cake.A marble cake is a cake with a streaked or mottled appearance (like marble) achieved by very lightly blending light and dark batter.Also, the ingredients used in the recipe are easily available.
